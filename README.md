@@ -1,7 +1,3 @@
 # practice
 
-
-
-
-
-Natalie-lopez
+07/14/1994
